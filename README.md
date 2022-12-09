@@ -1,5 +1,5 @@
 ### Jacob Partida
-#### _Research Technician_, Cal Poly Humboldt
+#### _Oceanographic Instrumentation Technician_, Cal Poly Humboldt
 ##### Trinidad Head Ocean Observing Node (THOON), Trinidad Head Line (THL)
  📧 `jacob.partida@humboldt.edu`
  📲 `310.995.8596`
